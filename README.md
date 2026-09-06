@@ -6,4 +6,4 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ[carrd](https://httpxiangsi.carrd.co)ㅤㅤ𝄞݂۫ㅤㅤ𓈒ㅤ [pint](https://ru.pinterest.com/YuiOguraorig/)ㅤㅤ؛ ᛝㅤㅤdiscord: xxx.gaycorn /ask to dm!
 
-<img width="160" height="50" alt="Без названия22_20260906133155" src="https://github.com/user-attachments/assets/00e79a68-806c-4d83-b6f1-ecd195166012" /> <img width="500" height="30" alt="blue-divider" src="https://github.com/user-attachments/assets/85892d8b-1932-46a6-b5f1-09fbbb2049b0" />
+<img width="165" height="50" alt="Без названия22_20260906133155" src="https://github.com/user-attachments/assets/00e79a68-806c-4d83-b6f1-ecd195166012" /> <img width="500" height="30" alt="blue-divider" src="https://github.com/user-attachments/assets/85892d8b-1932-46a6-b5f1-09fbbb2049b0" />
