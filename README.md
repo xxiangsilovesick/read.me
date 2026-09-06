@@ -1,5 +1,3 @@
-<img width="500" height="21" alt="658757kawmtvywht" src="https://github.com/user-attachments/assets/819d26b5-2940-4bf1-b5a9-47073add3450" />
-
 <img width="54" height="50" alt="Без названия22_20260906133155" src="https://github.com/user-attachments/assets/00e79a68-806c-4d83-b6f1-ecd195166012" /> <img width="735" height="225" alt="13440498884692103" src="https://github.com/user-attachments/assets/7e65b15b-8233-4f6e-8056-f24918526c99" />
 
                                                         ʚ‎‏ ͜ ̩͙ ︵ ̩͙ ୨ ♡ ୧ ̩͙ ‏︵ ̩͙ ͜ ɞ
